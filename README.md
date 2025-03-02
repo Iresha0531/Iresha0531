@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Iresha0531
 - 👀 I’m interested in remote work in data analyst
-- 🌱 I’m currently learning data languages.
+- 🌱 I’m currently learning new data languages.
 - 💞️ I’m looking to collaborate on many projects over the years
 - 📫 How to reach me iresha0531@yahoo.com
 - 😄 Pronouns: I-re-sha
